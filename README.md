@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @bakenam
+- 👀 I’m interested in history
+- 🌱 I’m currently learning education 
+-   Bye👋
